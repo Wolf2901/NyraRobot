@@ -25,7 +25,7 @@ _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ɴʏʀᴀ ʀᴏʙ�
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
-  <img src="https://te.legra.ph/file/a6df7cf5495c2e9213901.jpg">
+  <img src="https://te.legra.ph/file/bad5e86304abcf001c9f0.jpg">
 </p>
 
 <p align="center">
